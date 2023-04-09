@@ -1,1 +1,1 @@
-# heima-product-course
+黑马产品经理课程: https://www.bilibili.com/video/BV1sP4y1P7nK/
